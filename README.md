@@ -1,2 +1,2 @@
-# vapaporra
-olhaaipedopau
+# vapaporxa / "não"
+olhei
